@@ -1,1 +1,0 @@
-# AndrewRasband-MTECH-SampleProject-1
